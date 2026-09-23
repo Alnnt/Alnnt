@@ -13,3 +13,4 @@
  (>﹏<) (///ω///)
  ### How to reach me ?
  - QQ: 1138745158
+ - Email: alnntaixi@gmail.com
